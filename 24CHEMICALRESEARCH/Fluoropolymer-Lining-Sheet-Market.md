@@ -37,7 +37,6 @@ Latin America & Middle East
 The oil & gas and mining industries in these regions rely on corrosion-resistant materials, leading to increased fluoropolymer sheet adoption.
 
 [Download a free Sample Report PDF](url)
-
 Competitor Analysis 
 Key players in the fluoropolymer lining sheet market include:
 Chemours Company
