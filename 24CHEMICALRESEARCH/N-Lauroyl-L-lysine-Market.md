@@ -3,7 +3,7 @@ The compound is a biodegradable, non-toxic, and eco-friendly alternative in cosm
 Market Size
 The global N-Lauroyl-L-lysine market was valued at USD 135 million in 2023 and is projected to grow at a CAGR of 6.50%, reaching USD 237.95 million by 2032.
 
-[Download a free Sample Report PDF]([url(https://www.24chemicalresearch.com/download-sample/284322/global-regional-nlauroylllysine-forecast-supply-dem-analysis-competitive-market-2025-2032-315))]
+[Download a free Sample Report PDF](https://www.24chemicalresearch.com/download-sample/284322/global-regional-nlauroylllysine-forecast-supply-dem-analysis-competitive-market-2025-2032-315)
 
 The North American market, which accounted for USD 39.21 million in 2023, is expected to grow at a CAGR of 5.57% from 2024 to 2032.
 The rising demand for natural and sustainable personal care products, coupled with increasing consumer awareness regarding the benefits of amino acid-based ingredients, is driving the market growth.
