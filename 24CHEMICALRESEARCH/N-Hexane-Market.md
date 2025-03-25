@@ -3,7 +3,7 @@ Market Size
 The global N-Hexane market size was valued at USD 902 million in 2023 and is projected to reach USD 1,059.10 million by 2032, reflecting a Compound Annual Growth Rate (CAGR) of 1.80%. The market's steady growth is attributed to increasing demand in food-grade oil extraction and industrial solvent applications.
 In North America, the N-Hexane market was estimated at USD 242.34 million in 2023, with a projected CAGR of 1.54% from 2025 to 2032. The region's market expansion is driven by rising industrialization and a growing focus on eco-friendly solvent alternatives.
 
-[Download a free Sample Report PDF]([url](https://www.24chemicalresearch.com/download-sample/282944/global-nhexane-market-2025-2032-218))
+[Download a free Sample Report PDF](https://www.24chemicalresearch.com/download-sample/282944/global-nhexane-market-2025-2032-218)
 
 Market Dynamics (Drivers, Restraints, Opportunities, and Challenges)
 Drivers
